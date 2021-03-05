@@ -6,4 +6,4 @@
 >>ㄹㅇㄴㅁㄻㄴㅇ
 >>>ㄹㅇㄴㅁㄹㄴㅁㅇㄹㄴㅁㅇㄹㄴㅁㅇ
 
-![링크](https://www.youtube.com/watch?v=6w_dq-WscEM)
+[링크](https://www.youtube.com/watch?v=6w_dq-WscEM)
