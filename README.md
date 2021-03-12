@@ -6,4 +6,4 @@
 >>ㄹㅇㄴㅁㄻㄴㅇ
 >>>ㄹㅇㄴㅁㄹㄴㅁㅇㄹㄴㅁㅇㄹㄴㅁㅇ
 
-![사진]()https://images.app.goo.gl/CVtk4xVzuEQzwif48)
+![사진](https://images.app.goo.gl/CVtk4xVzuEQzwif48)
